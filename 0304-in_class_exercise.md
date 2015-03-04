@@ -25,5 +25,5 @@ March 4, 2015
 2. Women's access to the pulpit has often been denied,even after they completing seminary training.
 3. The recruiter enthusiastically shook Joe's hand after he decided to join the navy.
 4.  A skeleton caught my attention, when I entered the doctor's office.
-5. To please the children, some fireworks were set off a day early.
+5. Some fireworks were set off a day early to please the children.
 6. Though only sixteen, UCLA accepted Martha's application.
