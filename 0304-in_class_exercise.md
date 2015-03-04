@@ -24,6 +24,6 @@ March 4, 2015
 1. The car accidentally swerved into an oncoming car, when he was opening the window to let out a huge bumblebee.
 2. Women's access to the pulpit has often been denied,even after they completing seminary training.
 3. The recruiter enthusiastically shook Joe's hand after he decided to join the navy.
-4. Upon entering the doctor's office, a skeleton caught my attention.
+4.  A skeleton caught my attention, when I entered the doctor's office.
 5. To please the children, some fireworks were set off a day early.
 6. Though only sixteen, UCLA accepted Martha's application.
